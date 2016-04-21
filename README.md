@@ -1,4 +1,4 @@
-My name is Abdulaziz Nawar Aladdad. 
+My name is Abdulaziz Nawar Aladdad.  
 I am from Saudi Arabia ,
 currently i'm an economics major
 however i am also minoring in cit
