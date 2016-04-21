@@ -7,7 +7,7 @@ each lab i find new things and
 learn so much  
   
 I find these projects  
-super insifghtful  
+super insightful  
   
 The git tasks are tough but they are not  
 ungodly hard to complete  
