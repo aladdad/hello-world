@@ -10,7 +10,7 @@ I find these projects
 super insifghtful  
   
 The git tasks are tough but they are not  
-unfeasible to complete  
+ungodly hard to complete  
 they are kind of fun   
 overall i enjoy them and they are  
 rewarding  
