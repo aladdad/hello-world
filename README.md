@@ -1,5 +1,5 @@
 My name is Abdulaziz Nawar Aladdad.  
-I am from Saudi Arabia  
+i am from Saudi Arabia  
 currently i'm an economics major  
 however i am also minoring in cit   
 and i find it really insightful  
